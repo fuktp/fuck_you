@@ -1,2 +1,2 @@
 # fuck_you
-just don't understand this thing yet
+just don't understand this thing yet.yeeet...
